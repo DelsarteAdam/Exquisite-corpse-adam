@@ -18,3 +18,5 @@ souhaits secrets de ceux qui l'avaient vue. Un jeune garçon, les yeux
 brillants d'espoir, fit un vœu silencieux. Le lendemain, il trouva un petit 
 dragon doré endormi sur son oreiller, prêt à l'emmener vivre des aventures 
 extraordinaires.
+
+Un jour, en se promenant dans les ruelles pavées, Brian rencontra un vieux sage. Le vieil homme lui parla d'un trésor caché sous la Grand-Place, accessible uniquement à ceux qui osaient rêver. Intrigué, Brian décida de partir à sa recherche.
